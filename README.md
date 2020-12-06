@@ -1,4 +1,6 @@
-### Hi there 👋
+Linkedin: https://www.linkedin.com/in/filipe-sim%C3%B5es-421a5a15a/
+
+
 
 <!--
 **Filipeasl/Filipeasl** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
